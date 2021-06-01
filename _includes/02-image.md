@@ -1,0 +1,1 @@
+![Image](https://www.thebalancesmb.com/thmb/TyPatUOj0nL89d1S8CQSDGKX53M=/300x200/filters:no_upscale():max_bytes(150000):strip_icc():saturation(0.2):brightness(10):contrast(5):format(webp)/hands-woman-laptop-hands-in-frame-business-woman-using-laptop-people-using-laptop-hands-on-laptop_t20_mvVV6l-5c912a4446e0fb0001f8d10f.jpg)
