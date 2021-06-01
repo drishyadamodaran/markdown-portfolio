@@ -1,1 +1,3 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+__Wisdom__ 
+
+*“It is what you read when you don't have to that determines what you will be when you can't help it.”*
